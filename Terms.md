@@ -1,4 +1,4 @@
-# RiasBot Terms Of Services
+# NovaAI Terms Of Services
 Last Updated: June 24 2024
 
 # Agreement to Terms
